@@ -12,5 +12,5 @@ Explore our repositories to see how we're pushing the boundaries of FiveM rolepl
 ---
 
 **Connect with PowerMoves Gaming:**
-* Discord: [Your Discord Server Invite Link Here]
-* Website: [Your Website Link Here - if you have one for PowerMoves Gaming/RP]
+* Discord: [Coming Soon]
+* Website: [Coming Soon]
